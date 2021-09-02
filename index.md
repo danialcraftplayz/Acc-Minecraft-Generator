@@ -1,4 +1,4 @@
-## Welecome To Minecraft
+## Welecome To Generator MC
 
 **You Can Download This File And Open It
 
